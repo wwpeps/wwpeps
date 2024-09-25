@@ -5,7 +5,7 @@
 - Dirk" && Rose" kinnie if wanna know
 - bring me as peps || whatever u want idc
 - pronouns:: he/ any
-- fun fact:: u cant say "bout me dependin on my puns. its only puns ((or..))
+- fun fact:: u cant say "bout me based on my puns. its only puns ((or..))
 
 <!---
 wwpeps/wwpeps is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
