@@ -1,7 +1,7 @@
 ![05644](https://github.com/user-attachments/assets/9a41da4a-654c-48a2-a058-7088dc50a377)
 
 - im interested in homosuck
-- im currently learning cookin ur mmmmmmmmmmmmmmmmmmmilkcake
+- actually wanna learn java && start makin mods for mc
 - Dirk" && Rose" kinnie if wanna know
 - bring me as peps || whatever u want idc
 - pronouns:: he/ any
